@@ -1,5 +1,5 @@
 # Yuliya Androsova
-
+![](photo_2024-11-04_16-35-20.jpg)
 ## Intreduction
 
 Hello!
